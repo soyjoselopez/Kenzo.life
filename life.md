@@ -9,3 +9,6 @@
 - 10/12/2022 Tocó vacuna. Peso: 6kg
 - 10/12/2022 [Primera pieza dental de Kenzo caída](https://joselopez.ga/post/703256454629605376/primera-pieza-dental-de-kenzo-ca%C3%ADda)
 - 19/12/2022 [Kenzo ya tiene su jersey ugly navideño](https://joselopez.ga/post/704071592901263360/kenzo-ya-tiene-su-jersey-ugly-navide%C3%B1o)
+- 30/12/2022 [¿Hay algo para mí?](https://joselopez.ga/post/705081733718097920/hay-algo-para-m%C3%AD)
+- 05/01/2023 Peso: 8,200kg
+- 09/01/2023 [Estoy que lo muerdo todo!😁](https://joselopez.ga/post/705992766553997312/estoy-que-lo-muerdo-todo)
