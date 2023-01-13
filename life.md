@@ -15,3 +15,4 @@
 - 09/01/2023 Puesta la vacuna de la rabia
 - 10/01/2023 Hoy es el primer día que ha lavantado la pata para mear😁
 - 11/01/2023 [¡No más fotos!🤢](https://joselopez.ga/post/706173415504134144/no-m%C3%A1s-fotos)
+- 13/01/2023 Primer nesgar
