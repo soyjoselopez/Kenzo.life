@@ -12,3 +12,4 @@
 - 09/01/2023 Puesta la vacuna de la rabia
 - 10/01/2023 Hoy es el primer día que ha lavantado la pata para mear😁
 - 13/01/2023 Primer NexGard
+- 03/03/2023 Peso: 12,100kg
