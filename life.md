@@ -13,3 +13,4 @@
 - 10/01/2023 Hoy es el primer día que ha lavantado la pata para mear😁
 - 13/01/2023 Primer NexGard
 - 03/03/2023 Peso: 12,100kg
+- 24/04/2023 Peso: 13,300kg
